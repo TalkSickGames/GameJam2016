@@ -1,1 +1,1 @@
-# GameJam2016 oooooooooooooihiho
+# GameJam2016 ooooooooooooo
